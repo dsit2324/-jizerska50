@@ -1,2 +1,2 @@
-# -jizerska50
+# jizerska50
 PRP 
